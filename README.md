@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @JAIVINJUST7783
-- 👀 I’m interested in anime, music, slepp
+- 👀 I’m interested in anime, music, sleep
 - 🌱 I’m currently learning my life
 - 💞️ I’m looking to collaborate on idk
 - 📫 How to reach me no need to reach me i am currently sleeping. (Still you want to contact me then @jaivinjust7783 is my Insta and my MAL id👍)
